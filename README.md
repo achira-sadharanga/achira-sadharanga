@@ -21,7 +21,7 @@
 ## 🏆 Leadership & Experience
 
 - 🎖️ Acting President — **ITIA of SLTC**
-- 🦁 President — **Leo Club of Sri Lanka Technological Campus**
+- 🦁 President(25/26) — **Leo Club of Sri Lanka Technological Campus**
 - 💻 IEEE Computer Society Member
 - 🎤 Moderator — SLTC Research University Media Unit
 - 🌍 Organizer of social initiatives like:
